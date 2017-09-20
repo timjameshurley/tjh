@@ -18,11 +18,9 @@
 
 - Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
 
-- Integrated Amplifier [#](url)
+- Audioengine HD6 Powered Speakers (Pair) Walnut [#](https://audioengineusa.com/shop/wirelessspeakers/hd6-wireless-speakers/)
 
-- Bookshelf Speaker Pair [#](url)
-
-- Speaker Cables [#](url)
+- Phono Pre-Amp [#](url)
 
 ---
 
@@ -62,7 +60,7 @@
 
 ## Cycle Related;
 
-- TEST [#](url)
+- YT Industries 'Capra AL' Size Large [#](https://au.yt-industries.com/detail/index/sArticle/1309/sCategory/342)
 
 - TEST [#](url)
 
