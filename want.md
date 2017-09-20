@@ -4,7 +4,7 @@
 
 ---
 
-  ## Tools;
+## Tools;
 
 - Makita 18V Brushless Circular Saw [#](https://www.totaltools.com.au/power-tools/cordless-tools/circular-saws/98920-makita-18v-brushless-165mm-circular-saw-dhs680z)
 
@@ -16,7 +16,7 @@
 
 ## HI-FI;
 
-- Frequency Precise Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
+- Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
 
 - Integrated Amplifier [#](url)
 
@@ -48,9 +48,13 @@
 
 ## Guitar Related;
 
-- Small Tube Amp [#](url)
+- Supro 1690T Coronado Guitar Amplifier [#](https://www.pedalempire.com.au/products/1690t-coronado)
 
-- TEST [#](url)
+- Wampler Tumnus Overdrive [#](https://www.pedalempire.com.au/products/tumnus-mythical-overdrive)
+
+- Keeley Electronics D&M Drive [#](https://www.pedalempire.com.au/products/keeley-electronics-d-m-drive-pre-order)
+
+- Origin Effects CALI76-CD Compact Deluxe Limiter Compressor [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
 
 - TEST [#](url)
 
