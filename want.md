@@ -20,7 +20,7 @@
 
 - Audioengine HD6 Powered Speakers (Pair) Walnut [#](https://audioengineusa.com/shop/wirelessspeakers/hd6-wireless-speakers/)
 
-- Phono Pre-Amp [#](url)
+- Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
 ---
 
