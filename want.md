@@ -16,6 +16,8 @@
 
 ## HI-FI;
 
+- Frequency Precise Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
+
 - Integrated Amplifier [#](url)
 
 - Bookshelf Speaker Pair [#](url)
@@ -36,9 +38,9 @@
 
 ## Accessories;
 
-- Integrated Amplifier [#](url)
+- Shinola Runwell (Watch)(Not sure if will ship to Aus) [#](https://www.shinola.com/mens/watches/all/the-runwell/therunwell47-leather-band-watch-s038.html)
 
-- Bookshelf Speaker Pair [#](url)
+- Bellroy Note Sleeve (Wallet) Variety: Leather/RFID—Java [#](https://bellroy.com/products/note-sleeve-wallet/leather_rfid/java#image-6)
 
 - Speaker Cables [#](url)
 
