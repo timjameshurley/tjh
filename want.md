@@ -16,7 +16,7 @@
 
 - Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
 
-- Audioengine HD6 Powered Speakers (Pair) Walnut [#](https://audioengineusa.com/shop/wirelessspeakers/hd6-wireless-speakers/)
+- Audioengine HD6 Powered Speakers (Pair) Walnut [#](https://www.scorptec.com.au/product/Speakers/2.0/66829-AE-HD6P-WAL?gclid=EAIaIQobChMI4JPtn6i21gIVHQQqCh2xZA7EEAQYASABEgL6u_D_BwE)
 
 - Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
