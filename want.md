@@ -10,8 +10,6 @@
 
 - Makita 36V Brushless Sliding Compound Mitre Saw [#](https://www.totaltools.com.au/brands/makita/18vx2-brushless-sliding-compound-mitre-saw-skin-with-bonus)
 
--  [#](url)
-
 ---
 
 ## HI-FI;
@@ -26,9 +24,9 @@
 
 ## Clothing;
 
--  [#](url)
+- RM Williams Sydney Boot Dark Tan (Not sure of size) [#](http://www.rmwilliams.com.au/sydney-boot/B544Y_13FGCW06.html?lang=en_AU#lang=en_AU&start=1)
 
--  [#](url)
+-   [#](url)
 
 -  [#](url)
 
@@ -39,8 +37,6 @@
 - Shinola Runwell (Watch)(Not sure if will ship to Aus) [#](https://www.shinola.com/mens/watches/all/the-runwell/therunwell47-leather-band-watch-s038.html)
 
 - Bellroy Note Sleeve (Wallet) Variety: Leather/RFID—Java [#](https://bellroy.com/products/note-sleeve-wallet/leather_rfid/java#image-6)
-
-- Speaker Cables [#](url)
 
 ---
 
@@ -54,15 +50,9 @@
 
 - Origin Effects CALI76-CD Compact Deluxe Limiter Compressor [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
 
-- TEST [#](url)
-
 ---
 
 ## Cycle Related;
 
 - YT Industries 'Capra AL' Size Large [#](https://au.yt-industries.com/detail/index/sArticle/1309/sCategory/342)
-
-- TEST [#](url)
-
-- TEST [#](url)
 
