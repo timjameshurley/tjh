@@ -28,10 +28,6 @@
 
 - RM Williams Sydney Boot Dark Tan (Not sure of size) [#](http://www.rmwilliams.com.au/sydney-boot/B544Y_13FGCW06.html?lang=en_AU#lang=en_AU&start=1)
 
--   [#](url)
-
--  [#](url)
-
 ---
 
 ## Accessories;
@@ -39,6 +35,8 @@
 - Shinola Runwell (Watch)(Not sure if will ship to Aus) [#](https://www.shinola.com/mens/watches/all/the-runwell/therunwell47-leather-band-watch-s038.html)
 
 - Bellroy Note Sleeve (Wallet) Variety: Leather/RFID—Java [#](https://bellroy.com/products/note-sleeve-wallet/leather_rfid/java#image-6)
+
+- Sun Glasses
 
 ---
 
@@ -64,5 +62,7 @@
 
 - Weber Baby Q™ (Q1000AU)
 
-- 
+- Canon Battery Charger LC-E6E [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
+
+- Fridge
 
