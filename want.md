@@ -18,7 +18,7 @@
 
 - Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
 
-- Audioengine HD6 Powered Speakers (Pair) Walnut [#](https://www.scorptec.com.au/product/Speakers/2.0/61472-AE-HD6-WAL?gclid=EAIaIQobChMI-LLHyeC21gIV2gQqCh2_LwqQEAQYAiABEgI2jfD_BwE)
+- Desktop Speakers/Studio Monitors
 
 - Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
@@ -65,4 +65,6 @@
 - Canon Battery Charger LC-E6E [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
 
 - Fridge
+
+- IKEA: "Friheten" (Corner sofa-bed with storage, Skiftebo dark grey) [#](http://www.ikea.com/au/en/catalog/products/S09216703/#/S09216755)
 
