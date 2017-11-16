@@ -50,6 +50,9 @@
 
 - Origin Effects CALI76-CD Compact Deluxe Limiter Compressor [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
 
+- Evidence Audio Monorail Cable 10ft [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-monorail-cable-to-suit-sis-plugs)
+
+- Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10 [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
 ---
 
 ## Cycle Related;
@@ -64,7 +67,9 @@
 
 - Canon Battery Charger LC-E6E [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
 
-- Fridge
+- Canon Full Frame Mirrorless Camera (late 2018) ef format
 
-- IKEA: "Friheten" (Corner sofa-bed with storage, Skiftebo dark grey) [#](http://www.ikea.com/au/en/catalog/products/S09216703/#/S09216755)
+- ~~Fridge~~
+
+- ~~IKEA: "Friheten" (Corner sofa-bed with storage, Skiftebo dark grey)~~ [#](http://www.ikea.com/au/en/catalog/products/S09216703/#/S09216755)
 
