@@ -26,7 +26,7 @@
 
 - ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
 
-- ARCAM FMJ A19 [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
+- ~~ARCAM FMJ A19~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
 
 - Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
