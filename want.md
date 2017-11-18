@@ -12,6 +12,8 @@
 
 - Gerni/Karcher
 
+- Makita 18V Vacuum Cleaner #(https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
+
 ---
 
 ## HI-FI;
