@@ -22,9 +22,11 @@
 
 - Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
 
-- ELAC B6 Bookshelf Speakers [#](https://www.stereophonic.com.au/elac-debut-b6-bookshelf-speakers-pair/)
+- ELAC B6 Bookshelf Speakers [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
-- ~~PROJECT MAIA Integrated Amplifier~~ [#](https://www.stereophonic.com.au/project-maia-integrated-amplifier/)
+- ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
+
+- ARCAM FMJ A19 [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
 
 - Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
