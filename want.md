@@ -20,7 +20,9 @@
 
 - Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
 
-- Desktop Speakers/Studio Monitors
+- ELAC B6 Bookshelf Speakers [#](https://www.stereophonic.com.au/elac-debut-b6-bookshelf-speakers-pair/)
+
+- Stereo Amplifier
 
 - Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
