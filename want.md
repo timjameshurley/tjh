@@ -78,7 +78,7 @@
 
 - Canon Full Frame Mirrorless Camera (late 2018) EF format
 
-- ~~Fridge~~
+- ~~Westinghouse WBB3400~~
 
 - ~~IKEA: "Friheten" (Corner sofa-bed with storage, Skiftebo dark grey)~~ [#](http://www.ikea.com/au/en/catalog/products/S09216703/#/S09216755)
 
