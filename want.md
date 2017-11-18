@@ -2,6 +2,8 @@
 
 # I would like;
 
+** Strike through denotes acquisition or uncertaintity **
+
 ---
 
 ## Tools;
