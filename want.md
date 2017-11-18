@@ -12,7 +12,7 @@
 
 - Gerni/Karcher
 
-- Makita 18V Vacuum Cleaner #(https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
+- Makita 18V Vacuum Cleaner [#](https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
 
 ---
 
@@ -56,7 +56,7 @@
 
 - Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10 [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
 
-- Joyo PXL-Live #(https://www.artistguitars.com.au/buy/joyo-pxl-live-multiple-efx-loop-pedal-system-with/12454)
+- Joyo PXL-Live [#](https://www.artistguitars.com.au/buy/joyo-pxl-live-multiple-efx-loop-pedal-system-with/12454)
 
 ---
 
