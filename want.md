@@ -54,6 +54,8 @@
 
 - Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10 [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
 
+- Joyo PXL-Live #(https://www.artistguitars.com.au/buy/joyo-pxl-live-multiple-efx-loop-pedal-system-with/12454)
+
 ---
 
 ## Cycle Related;
@@ -68,7 +70,7 @@
 
 - Canon Battery Charger LC-E6E [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
 
-- Canon Full Frame Mirrorless Camera (late 2018) ef format
+- Canon Full Frame Mirrorless Camera (late 2018) EF format
 
 - ~~Fridge~~
 
