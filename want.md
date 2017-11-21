@@ -24,11 +24,11 @@
 
 - ELAC B6 Bookshelf Speakers [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
-- Schiit Audio Ragnarok Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-ragnarok-headphone-and-speaker-amplifier)
+- Schiit Audio Jotunheim with DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
 
 - Schiit Audio Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
-- Schiit Audio BIFROST AK4490 DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-bifrost-ak4490-digital-to-analogue-converter)
+- Schiit Audio Vidar Power Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
 
 - ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
 
