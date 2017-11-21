@@ -24,13 +24,17 @@
 
 - ELAC B6 Bookshelf Speakers [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
+- Schiit Audio Ragnarok Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-ragnarok-headphone-and-speaker-amplifier)
+
+- Schiit Audio Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
+
+- Schiit Audio Modi Multibit DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-modi-multibit-digital-to-analog-converter)
+
 - ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
 
 - ~~ARCAM FMJ A19~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
 
 - ~~REGA Brio R 2017~~ [#](https://www.apollohifi.com.au/rega-brio-r-2017-integrated-amplifier.html)
-
-- ~~Shiit Mani Phono Stage~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
 ---
 
