@@ -28,7 +28,9 @@
 
 - ~~ARCAM FMJ A19~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
 
-- Shiit Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
+- ~~REGA Brio R 2017~~ [#](https://www.apollohifi.com.au/rega-brio-r-2017-integrated-amplifier.html)
+
+- ~~Shiit Mani Phono Stage~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
 ---
 
