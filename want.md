@@ -36,6 +36,8 @@
 
 - RM Williams Sydney Boot Dark Tan (Not sure of size) [#](http://www.rmwilliams.com.au/sydney-boot/B544Y_13FGCW06.html?lang=en_AU#lang=en_AU&start=1)
 
+- Socks and undies
+
 ---
 
 ## Accessories;
