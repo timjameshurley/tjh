@@ -28,7 +28,7 @@
 
 - Schiit Audio Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
-- Schiit Audio Modi Multibit DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-modi-multibit-digital-to-analog-converter)
+- Schiit Audio BIFROST AK4490 DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-bifrost-ak4490-digital-to-analogue-converter)
 
 - ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
 
