@@ -70,6 +70,8 @@
 
 ## Guitar Related;
 
+- Joey Landreth AGED Signature Rock Slide [#](http://www.therockslide.com/shop/the-bros-landreth/)
+
 - Supro 1690T Coronado Guitar Amplifier [#](https://www.pedalempire.com.au/products/1690t-coronado)
 
 - Wampler Tumnus Overdrive [#](https://www.pedalempire.com.au/products/tumnus-mythical-overdrive)
