@@ -20,7 +20,7 @@
 
 ## HI-FI;
 
-- Model 1930-115V Precise Frequency Inverter [#](http://www.kensclockclinic.com/products/1930-115v/)
+- ~~Model 1930-115V Precise Frequency Inverter~~ [#](http://www.kensclockclinic.com/products/1930-115v/)
 
 - ELAC B6 Bookshelf Speakers [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
@@ -37,6 +37,18 @@
 - ~~REGA Brio R 2017~~ [#](https://www.apollohifi.com.au/rega-brio-r-2017-integrated-amplifier.html)
 
 ---
+
+## Vinyl; (Album : Artist)
+
+- OK Computer : Radiohead [#]()
+- Back to Black : Amy Winehouse [#]()
+- Axis: Bold As Love : The Jimi Hendrix Experience [#]()
+- Are You Experienced : The Jimi Hendrix Experience [#]()
+- Electric Ladyland : The Jimi Hendrix Experience [#]()
+- Violator : Depeche Mode [#]()
+- Rumors : Fleetwood Mac [#]()
+- Let It Lie : The Bros. Landreth [#]()
+- Starboy : The Weeknd [#]()
 
 ## Clothing;
 
@@ -82,11 +94,11 @@
 
 ## Misc;
 
-- Weber Baby Q™ (Q1000AU)
-
 - Canon Battery Charger LC-E6E [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
 
 - Canon Full Frame Mirrorless Camera (late 2018) EF format
+
+- ~~Weber Baby Q™ (Q1200AU)~~
 
 - ~~Westinghouse WBB3400~~
 
