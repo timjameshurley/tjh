@@ -20,8 +20,6 @@
 
 ## HI-FI;
 
-- ~~Model 1930-115V Precise Frequency Inverter~~ [#](http://www.kensclockclinic.com/products/1930-115v/)
-
 - ELAC B6 Bookshelf Speakers [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
 - Schiit Audio Jotunheim with DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
@@ -29,6 +27,8 @@
 - Schiit Audio Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
 - Schiit Audio Vidar Power Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
+
+- ~~Model 1930-115V Precise Frequency Inverter~~ [#](http://www.kensclockclinic.com/products/1930-115v/)
 
 - ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
 
