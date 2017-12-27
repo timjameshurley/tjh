@@ -8,7 +8,7 @@
 
 ## Tools;
 
-- Makita 18V Brushless Circular Saw [#](https://www.totaltools.com.au/power-tools/cordless-tools/circular-saws/98920-makita-18v-brushless-165mm-circular-saw-dhs680z)
+- ~~Makita 18V Brushless Circular Saw~~ [#](https://www.totaltools.com.au/power-tools/cordless-tools/circular-saws/98920-makita-18v-brushless-165mm-circular-saw-dhs680z)
 
 - Makita 36V Brushless Sliding Compound Mitre Saw [#](https://www.totaltools.com.au/brands/makita/18vx2-brushless-sliding-compound-mitre-saw-skin-with-bonus)
 
@@ -20,13 +20,13 @@
 
 ## HI-FI;
 
-- ELAC B6 Bookshelf Speakers [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
+- Schiit Audio Vidar Power Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
 
 - Schiit Audio Jotunheim with DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
 
-- Schiit Audio Mani Phono Stage [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
+- ~~ELAC B6 Bookshelf Speakers~~ [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
-- Schiit Audio Vidar Power Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
+- ~~Schiit Audio Mani Phono Stage~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
 
 - ~~Model 1930-115V Precise Frequency Inverter~~ [#](http://www.kensclockclinic.com/products/1930-115v/)
 
