@@ -20,9 +20,11 @@
 
 ## HI-FI;
 
-- Schiit Audio Vidar Power Amp [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
+- SONOS Connect: Amplifier [#](https://addictedtoaudio.com.au/products/sonos-connect-amplifier)
 
-- Schiit Audio Jotunheim with DAC [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
+- ~~Schiit Audio Vidar Power Amp~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
+
+- ~~Schiit Audio Jotunheim with DAC~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
 
 - ~~ELAC B6 Bookshelf Speakers~~ [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
 
@@ -48,7 +50,7 @@
 - Violator : Depeche Mode [#]()
 - Rumors : Fleetwood Mac [#]()
 - Let It Lie : The Bros. Landreth [#]()
-- Starboy : The Weeknd [#]()
+- ~~Starboy : The Weeknd~~ [#]()
 
 ## Clothing;
 
@@ -62,7 +64,7 @@
 
 - Shinola Runwell (Watch)(Not sure if will ship to Aus) [#](https://www.shinola.com/mens/watches/all/the-runwell/therunwell47-leather-band-watch-s038.html)
 
-- Bellroy Note Sleeve (Wallet) Variety: Leather/RFID—Java [#](https://bellroy.com/products/note-sleeve-wallet/leather_rfid/java#image-6)
+- ~~Bellroy Note Sleeve (Wallet) Variety: Leather/RFID—Java~~ [#](https://bellroy.com/products/note-sleeve-wallet/leather_rfid/java#image-6)
 
 - Sun Glasses
 
@@ -76,9 +78,9 @@
 
 - Wampler Tumnus Overdrive [#](https://www.pedalempire.com.au/products/tumnus-mythical-overdrive)
 
-- Keeley Electronics D&M Drive [#](https://www.pedalempire.com.au/products/keeley-electronics-d-m-drive-pre-order)
+- ~~Keeley Electronics D&M Drive~~ [#](https://www.pedalempire.com.au/products/keeley-electronics-d-m-drive-pre-order)
 
-- Origin Effects CALI76-CD Compact Deluxe Limiter Compressor [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
+- ~~Origin Effects CALI76-CD Compact Deluxe Limiter Compressor~~ [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
 
 - Evidence Audio Monorail Cable 10ft [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-monorail-cable-to-suit-sis-plugs)
 
