@@ -42,6 +42,7 @@
 
 ## Vinyl; (Album : Artist)
 
+- Brothers In Arms : Dire Straits [#]()
 - OK Computer : Radiohead [#]()
 - Back to Black : Amy Winehouse [#]()
 - Axis: Bold As Love : The Jimi Hendrix Experience [#]()
@@ -50,6 +51,7 @@
 - Violator : Depeche Mode [#]()
 - Rumors : Fleetwood Mac [#]()
 - Let It Lie : The Bros. Landreth [#]()
+- Tracy Chapman : Tracy Chapman
 - ~~Starboy : The Weeknd~~ [#]()
 
 ## Clothing;
@@ -78,15 +80,15 @@
 
 - Wampler Tumnus Overdrive [#](https://www.pedalempire.com.au/products/tumnus-mythical-overdrive)
 
-- ~~Keeley Electronics D&M Drive~~ [#](https://www.pedalempire.com.au/products/keeley-electronics-d-m-drive-pre-order)
-
-- ~~Origin Effects CALI76-CD Compact Deluxe Limiter Compressor~~ [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
-
 - Evidence Audio Monorail Cable 10ft [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-monorail-cable-to-suit-sis-plugs)
 
 - Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10 [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
 
 - Joyo PXL-Live [#](https://www.artistguitars.com.au/buy/joyo-pxl-live-multiple-efx-loop-pedal-system-with/12454)
+
+- ~~Keeley Electronics D&M Drive~~ [#](https://www.pedalempire.com.au/products/keeley-electronics-d-m-drive-pre-order)
+
+- ~~Origin Effects CALI76-CD Compact Deluxe Limiter Compressor~~ [#](https://www.pedalempire.com.au/products/cali76-cd-compact-series-limiter-compressor)
 
 ---
 
@@ -98,9 +100,9 @@
 
 ## Misc;
 
-- Canon Battery Charger LC-E6E [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
-
 - Canon Full Frame Mirrorless Camera (late 2018) EF format
+
+- ~~Canon Battery Charger LC-E6E~~ [#](https://store.canon.com.au/battery-charger-lc-e6e.html)
 
 - ~~Weber Baby Q™ (Q1200AU)~~
 
