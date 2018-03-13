@@ -20,7 +20,7 @@
 
 ## HI-FI;
 
-- SONOS Connect: Amplifier [#](https://addictedtoaudio.com.au/products/sonos-connect-amplifier)
+- ~~SONOS Connect: Amplifier~~ [#](https://addictedtoaudio.com.au/products/sonos-connect-amplifier)
 
 - ~~Schiit Audio Vidar Power Amp~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
 
@@ -53,6 +53,7 @@
 - Let It Lie : The Bros. Landreth [#]()
 - Tracy Chapman : Tracy Chapman
 - ~~Starboy : The Weeknd~~ [#]()
+- Unknown Pleasures : Joy Division [#]()
 
 ## Clothing;
 
