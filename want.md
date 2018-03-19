@@ -6,15 +6,21 @@
 
 ---
 
-## Tools;
+## Electronic;
 
-- ~~Makita 18V Brushless Circular Saw~~ [#](https://www.totaltools.com.au/power-tools/cordless-tools/circular-saws/98920-makita-18v-brushless-165mm-circular-saw-dhs680z)
+- Xbox One S 1TB [#]()
+
+---
+
+## Tools;
 
 - Makita 36V Brushless Sliding Compound Mitre Saw [#](https://www.totaltools.com.au/brands/makita/18vx2-brushless-sliding-compound-mitre-saw-skin-with-bonus)
 
 - Gerni/Karcher
 
 - Makita 18V Vacuum Cleaner [#](https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
+
+- ~~Makita 18V Brushless Circular Saw~~ [#](https://www.totaltools.com.au/power-tools/cordless-tools/circular-saws/98920-makita-18v-brushless-165mm-circular-saw-dhs680z)
 
 ---
 
