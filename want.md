@@ -18,7 +18,7 @@
 
 ## Electronic;
 
-- Xbox One S 1TB [#]()
+- ~~Xbox One S 1TB~~ [#]()
 
 ---
 
