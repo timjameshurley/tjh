@@ -63,8 +63,6 @@
 
 - ~~Bellroy Note Sleeve (Wallet) Variety: Leather/RFID—Java~~ [#](https://bellroy.com/products/note-sleeve-wallet/leather_rfid/java#image-6)
 
-- Sun Glasses
-
 ---
 
 ## Guitar;
@@ -79,7 +77,7 @@
 
 - Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10 [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
 
-- Joyo PXL-Live [#](https://www.artistguitars.com.au/buy/joyo-pxl-live-multiple-efx-loop-pedal-system-with/12454)
+- ~~Joyo PXL-Live~~ [#](https://www.artistguitars.com.au/buy/joyo-pxl-live-multiple-efx-loop-pedal-system-with/12454)
 
 - ~~Keeley Electronics D&M Drive~~ [#](https://www.pedalempire.com.au/products/keeley-electronics-d-m-drive-pre-order)
 
