@@ -6,6 +6,16 @@
 
 ---
 
+## Motorcycle;
+
+- Merlin Anson Navy Wax Jacket [#](https://www.bikebiz.com.au/merlin-anson-navy-wax-jacket)
+
+- Roland Sands Ramone Black [#](https://www.rolandsands.com/product/533/ramone/black)
+
+- UNBREAKABLE 6 JEANS - BLACK [#](https://www.saint.cc/unbreakable-6-jeans-black-coated)
+
+---
+
 ## Electronic;
 
 - Xbox One S 1TB [#]()
@@ -21,28 +31,6 @@
 - Makita 18V Vacuum Cleaner [#](https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
 
 - ~~Makita 18V Brushless Circular Saw~~ [#](https://www.totaltools.com.au/power-tools/cordless-tools/circular-saws/98920-makita-18v-brushless-165mm-circular-saw-dhs680z)
-
----
-
-## HI-FI;
-
-- ~~SONOS Connect: Amplifier~~ [#](https://addictedtoaudio.com.au/products/sonos-connect-amplifier)
-
-- ~~Schiit Audio Vidar Power Amp~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
-
-- ~~Schiit Audio Jotunheim with DAC~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
-
-- ~~ELAC B6 Bookshelf Speakers~~ [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
-
-- ~~Schiit Audio Mani Phono Stage~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
-
-- ~~Model 1930-115V Precise Frequency Inverter~~ [#](http://www.kensclockclinic.com/products/1930-115v/)
-
-- ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
-
-- ~~ARCAM FMJ A19~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
-
-- ~~REGA Brio R 2017~~ [#](https://www.apollohifi.com.au/rega-brio-r-2017-integrated-amplifier.html)
 
 ---
 
@@ -79,7 +67,7 @@
 
 ---
 
-## Guitar Related;
+## Guitar;
 
 - Joey Landreth AGED Signature Rock Slide [#](http://www.therockslide.com/shop/the-bros-landreth/)
 
@@ -102,6 +90,28 @@
 ## Cycle Related;
 
 - YT Industries 'Capra AL' Size Large [#](https://au.yt-industries.com/detail/index/sArticle/1309/sCategory/342)
+
+---
+
+## HI-FI;
+
+- ~~SONOS Connect: Amplifier~~ [#](https://addictedtoaudio.com.au/products/sonos-connect-amplifier)
+
+- ~~Schiit Audio Vidar Power Amp~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-vidar-stereo-mono-power-amplifier)
+
+- ~~Schiit Audio Jotunheim with DAC~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-jotunheim-balanced-headphone-amplifier-no-module?variant=28770649347)
+
+- ~~ELAC B6 Bookshelf Speakers~~ [#](https://www.apollohifi.com.au/elac-debut-b6-bookshelf-speaker.html)
+
+- ~~Schiit Audio Mani Phono Stage~~ [#](https://addictedtoaudio.com.au/products/schiit-audio-mani-phono-stage)
+
+- ~~Model 1930-115V Precise Frequency Inverter~~ [#](http://www.kensclockclinic.com/products/1930-115v/)
+
+- ~~PROJECT MaiA DS Integrated Amplifier~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/project-maia-ds-integrated-stereo-amplifier.html)
+
+- ~~ARCAM FMJ A19~~ [#](https://www.apollohifi.com.au/audio/stereo-amplifiers-receivers/arcam-fmj-a19-stereo-amplifier.html)
+
+- ~~REGA Brio R 2017~~ [#](https://www.apollohifi.com.au/rega-brio-r-2017-integrated-amplifier.html)
 
 ---
 
