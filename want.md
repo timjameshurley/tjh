@@ -10,9 +10,15 @@
 
 - UNBREAKABLE 6 JEANS - BLACK [#](https://www.saint.cc/unbreakable-6-jeans-black-coated)
 
-- ~~Merlin Anson Navy Wax Jacket~~ [#](https://www.bikebiz.com.au/merlin-anson-navy-wax-jacket)
+- Dainese Settantadue Prima72 Black Leather Jacket - [#](https://www.bikebiz.com.au/dainese-settantadue-prima72-black-leather-jacket)
 
-- ~~Roland Sands Ramone Black~~ [#](https://www.rolandsands.com/product/533/ramone/black)
+- Segura Steevy Jacket [#](https://www.bikebiz.com.au/segura-steevy-jacket)
+
+- Merlin Alton Black Leather Jacket [#](https://www.bikebiz.com.au/merlin-alton-black-leather-jacket)
+
+- Merlin Anson Navy Wax Jacket [#](https://www.bikebiz.com.au/merlin-anson-navy-wax-jacket)
+
+- Roland Sands Ramone Black [#](https://www.rolandsands.com/product/533/ramone/black)
 
 - 
 ---
@@ -23,22 +29,11 @@
 
 - First Aid Kit
 
-- 
-
----
-
-## Tools;
-
-- Makita 36V Brushless Sliding Compound Mitre Saw [#](https://www.totaltools.com.au/brands/makita/18vx2-brushless-sliding-compound-mitre-saw-skin-with-bonus)
-
-- Gerni/Karcher
-
-- Makita 18V Vacuum Cleaner [#](https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
-
 ---
 
 ## Vinyl; (Album : Artist)
 
+- The Low End Theory : A Tribe Called Quest [#]()
 - Brothers In Arms : Dire Straits [#]()
 - OK Computer : Radiohead [#]()
 - Back to Black : Amy Winehouse [#]()
@@ -49,8 +44,8 @@
 - Rumors : Fleetwood Mac [#]()
 - Let It Lie : The Bros. Landreth [#]()
 - Tracy Chapman : Tracy Chapman
-- ~~Starboy : The Weeknd~~ [#]()
 - Unknown Pleasures : Joy Division [#]()
+- ~~Starboy : The Weeknd~~ [#]()
 
 ---
 
@@ -79,6 +74,16 @@
 - ~~Evidence Audio Monorail Cable 10ft~~ [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-monorail-cable-to-suit-sis-plugs)
 
 - ~~Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10~~ [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
+
+---
+
+## Tools;
+
+- Makita 36V Brushless Sliding Compound Mitre Saw [#](https://www.totaltools.com.au/brands/makita/18vx2-brushless-sliding-compound-mitre-saw-skin-with-bonus)
+
+- Gerni/Karcher
+
+- Makita 18V Vacuum Cleaner [#](https://www.totaltools.com.au/114518-makita-18v-650ml-vacuum-cleaner-bare-dcl181fzwx)
 
 ---
 
