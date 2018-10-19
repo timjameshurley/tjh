@@ -13,7 +13,6 @@
 - Merlin Alton Black Leather Jacket [#](https://www.bikebiz.com.au/merlin-alton-black-leather-jacket)
 - Merlin Anson Navy Wax Jacket [#](https://www.bikebiz.com.au/merlin-anson-navy-wax-jacket)
 - Roland Sands Ramone Black [#](https://www.rolandsands.com/product/533/ramone/black)
-- Alpinestars Challenger V2 Black 1 Piece Suit [#](https://www.bikebiz.com.au/alpinestars-challenger-v2-black-1-piece-suit)
 - Alpinestars GP Plus Black Camo/White One Piece Suit [#](https://www.bikebiz.com.au/alpinestars-gp-plus-black-camo-white-one-piece-suit)
 
 ---
