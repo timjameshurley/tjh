@@ -6,13 +6,15 @@
 
 ### Motorcycle;
 
-- ABBA Stand - Triumph, Street Triple 660, 2017 - [#](https://abbastandsaus.com/product-detail.asp?pid=1)
+- ABBA Stand - Triumph, Street Triple 660, 2017 [#](https://abbastandsaus.com/product-detail.asp?pid=1)
 - UNBREAKABLE 6 JEANS - BLACK [#](https://www.saint.cc/unbreakable-6-jeans-black-coated)
-- Dainese Settantadue Prima72 Black Leather Jacket - [#](https://www.bikebiz.com.au/dainese-settantadue-prima72-black-leather-jacket)
+- Dainese Settantadue Prima72 Black Leather Jacket [#](https://www.bikebiz.com.au/dainese-settantadue-prima72-black-leather-jacket)
 - Segura Steevy Jacket [#](https://www.bikebiz.com.au/segura-steevy-jacket)
 - Merlin Alton Black Leather Jacket [#](https://www.bikebiz.com.au/merlin-alton-black-leather-jacket)
 - Merlin Anson Navy Wax Jacket [#](https://www.bikebiz.com.au/merlin-anson-navy-wax-jacket)
 - Roland Sands Ramone Black [#](https://www.rolandsands.com/product/533/ramone/black)
+- Alpinestars Challenger V2 Black 1 Piece Suit [#](https://www.bikebiz.com.au/alpinestars-challenger-v2-black-1-piece-suit)
+- Alpinestars GP Plus Black Camo/White One Piece Suit [#](https://www.bikebiz.com.au/alpinestars-gp-plus-black-camo-white-one-piece-suit)
 
 ---
 
