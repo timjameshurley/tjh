@@ -8,7 +8,7 @@
 
 - ABBA Stand - Triumph, Street Triple 660, 2017 [#](https://abbastandsaus.com/product-detail.asp?pid=1)
 - Saint UNBREAKABLE 6 JEANS BLACK [#](https://www.saint.cc/unbreakable-6-jeans-black-coated)
-- 2016 TRIUMPH CUSTOM MENS LEATHER JACKET - [#](https://www.peterstevens.com.au/riding-gear/brand/triumph/riding-gear/triumph-genuine-custom-mens-leather-jacket.html)
+- ***2016 TRIUMPH CUSTOM MENS LEATHER JACKET - [#](https://www.peterstevens.com.au/riding-gear/brand/triumph/riding-gear/triumph-genuine-custom-mens-leather-jacket.html)
 - Triumph Assen Jacket [#](https://www.bikebiz.com.au/triumph-accessories-triumph-assen-jacket?gclid=CjwKCAjwgabeBRBuEiwACD4R5t6VwQjJ26cIBv51Ci1mkMVDDU4wKBiFtlU2RmfGuoPhxx4RLCK1dRoC5eoQAvD_BwE)
 - Dainese Settantadue Prima72 Black Leather Jacket [#](https://www.bikebiz.com.au/dainese-settantadue-prima72-black-leather-jacket)
 - Segura Steevy Jacket [#](https://www.bikebiz.com.au/segura-steevy-jacket)
