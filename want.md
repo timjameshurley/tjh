@@ -8,7 +8,8 @@
 
 - D30 Back Protector to suit Triumph Jackets x 2
 - Alpine Stars GP PRO Boots
--
+- Track Day
+
 
 ---
 
@@ -22,6 +23,7 @@
 
 ### Camping;
 
+- Tent
 - JETBOIL MINIMO SYSTEM [#](https://www.anacondastores.com/camping-hiking/camp-cooking/camp-cooking-appliances/jetboil-minimo-system/BP90079036)
 - First Aid Kit
 
