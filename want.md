@@ -6,10 +6,9 @@
 
 ### Motorcycle;
 
-- ABBA Stand - Triumph, Street Triple 660, 2017 [#](https://abbastandsaus.com/product-detail.asp?pid=1)
-- Saint UNBREAKABLE 6 JEANS BLACK [#](https://www.saint.cc/unbreakable-6-jeans-black-coated)
-- **2016 TRIUMPH CUSTOM MENS LEATHER JACKET** - [#](https://www.peterstevens.com.au/riding-gear/brand/triumph/riding-gear/triumph-genuine-custom-mens-leather-jacket.html)
-- Triumph Assen Jacket [#](https://www.bikebiz.com.au/triumph-accessories-triumph-assen-jacket?gclid=CjwKCAjwgabeBRBuEiwACD4R5t6VwQjJ26cIBv51Ci1mkMVDDU4wKBiFtlU2RmfGuoPhxx4RLCK1dRoC5eoQAvD_BwE)
+- D30 Back Protector to suit Triumph Jackets x 2
+- Alpine Stars GP PRO Boots
+-
 
 ---
 
@@ -18,7 +17,6 @@
 - Merlin Alton Black Leather Jacket [#](https://www.bikebiz.com.au/merlin-alton-black-leather-jacket)
 - Merlin Anson Navy Wax Jacket [#](https://www.bikebiz.com.au/merlin-anson-navy-wax-jacket)
 - Roland Sands Ramone Black [#](https://www.rolandsands.com/product/533/ramone/black)
-- Alpinestars GP Plus Black Camo/White One Piece Suit [#](https://www.bikebiz.com.au/alpinestars-gp-plus-black-camo-white-one-piece-suit)
 
 ---
 
@@ -49,7 +47,6 @@
 
 ### Clothing;
 
-- RM Williams Sydney Boot Dark Tan (Not sure of size) [#](http://www.rmwilliams.com.au/sydney-boot/B544Y_13FGCW06.html?lang=en_AU#lang=en_AU&start=1)
 - Socks and undies
 
 ---
@@ -90,8 +87,6 @@
 
 ### HI-FI;
 
-- DAC/Streaming Device
-
 ---
 
 ### Misc;
@@ -102,6 +97,12 @@
 
 ### Acquired;
 
+- ~~Alpinestars GP Plus Black Camo/White One Piece Suit~~ [#](https://www.bikebiz.com.au/alpinestars-gp-plus-black-camo-white-one-piece-suit)
+- ~~ABBA Stand - Triumph, Street Triple 660, 2017~~ [#](https://abbastandsaus.com/product-detail.asp?pid=1)
+- Saint UNBREAKABLE 6 JEANS BLACK [#](https://www.saint.cc/unbreakable-6-jeans-black-coated)
+- ~~**2016 TRIUMPH CUSTOM MENS LEATHER JACKET**~~ - [#](https://www.peterstevens.com.au/riding-gear/brand/triumph/riding-gear/triumph-genuine-custom-mens-leather-jacket.html)
+- ~~Triumph Assen Jacket~~ [#](https://www.bikebiz.com.au/triumph-accessories-triumph-assen-jacket?gclid=CjwKCAjwgabeBRBuEiwACD4R5t6VwQjJ26cIBv51Ci1mkMVDDU4wKBiFtlU2RmfGuoPhxx4RLCK1dRoC5eoQAvD_BwE)
+- ~~RM Williams Sydney Boot Dark Tan (SIZE 9H)~~ [#](http://www.rmwilliams.com.au/sydney-boot/B544Y_13FGCW06.html?lang=en_AU#lang=en_AU&start=1)
 - ~~Weber Baby Q™ (Q1200AU)~~
 - ~~Westinghouse WBB3400~~
 - ~~IKEA: "Friheten" (Corner sofa-bed with storage, Skiftebo dark grey)~~ [#](http://www.ikea.com/au/en/catalog/products/S09216703/#/S09216755)
