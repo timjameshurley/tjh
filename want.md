@@ -6,7 +6,7 @@
 
 ### Motorcycle;
 
-- D30 Back Protector to suit Triumph Jackets x 2
+- Forcefield Armour; 2 x Backprotectors to suit triumph jackets; 1 x strap on for suit.
 - Alpine Stars GP PRO Boots
 - Track Day
 
