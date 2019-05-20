@@ -23,7 +23,6 @@
 
 ### Camping;
 
-- Tent
 - JETBOIL MINIMO SYSTEM [#](https://www.anacondastores.com/camping-hiking/camp-cooking/camp-cooking-appliances/jetboil-minimo-system/BP90079036)
 - First Aid Kit
 
