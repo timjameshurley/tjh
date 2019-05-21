@@ -61,7 +61,7 @@
 ### Guitar;
 
 - Joey Landreth AGED Signature Rock Slide [#](http://www.therockslide.com/shop/the-bros-landreth/)
-- Victory V40 Amp Head [#](https://guitarfactory.net/collections/victory-amplification/products/victory-v40-the-duchess-amplifier)
+- Victory V40 Deluxe Amp Head [#](https://guitarfactory.net/collections/victory-amplification/products/victory-v40-h-deluxe-head)
 - Victory V212VC Cabinet [#](https://guitarfactory.net/collections/victory-amplification/products/victory-v212vc-cabinet)
 - ~~Wampler Tumnus Overdrive~~ [#](https://www.pedalempire.com.au/products/tumnus-mythical-overdrive)
 - ~~Evidence Audio Monorail Cable 10ft~~ [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-monorail-cable-to-suit-sis-plugs)
