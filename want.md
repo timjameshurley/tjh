@@ -63,6 +63,7 @@
 - Joey Landreth AGED Signature Rock Slide [#](http://www.therockslide.com/shop/the-bros-landreth/)
 - Victory V40 Deluxe Amp Head [#](https://guitarfactory.net/collections/victory-amplification/products/victory-v40-h-deluxe-head)
 - Victory V212VC Cabinet [#](https://guitarfactory.net/collections/victory-amplification/products/victory-v212vc-cabinet)
+- Sweet Sound Mojo Vibe [#](https://www.deluxeguitars.com.au/products/sweet-sound-mojo-vibe)
 - ~~Wampler Tumnus Overdrive~~ [#](https://www.pedalempire.com.au/products/tumnus-mythical-overdrive)
 - ~~Evidence Audio Monorail Cable 10ft~~ [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-monorail-cable-to-suit-sis-plugs)
 - ~~Evidence Audio SIS Screw in Solderless Plugs Right Angle x 10~~ [#](https://www.pedalempire.com.au/collections/cables/products/evidence-audio-sis-screw-in-solderless-1-4-plugs?variant=32621355594)
